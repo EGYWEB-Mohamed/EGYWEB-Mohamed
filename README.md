@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **me@msaied.com**
 
+- 😉 Hire me ? [Linkedin](https://www.linkedin.com/in/msaiedm)
+
 - 🌐 My website [msaied.com](https://msaied.com)
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1MF20IPRJyzfy32mhEutjL5EpSls0w2Q8/view](https://drive.google.com/file/d/1MF20IPRJyzfy32mhEutjL5EpSls0w2Q8/view)
